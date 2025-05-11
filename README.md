@@ -26,5 +26,6 @@
 *如有任何问题或合作意向*，请发送邮件至 starrepository@gmail.com 或通过 GitHub Issues 联系我们。
 
 ✈️ TG:  [t.me/Web3um](https://t.me/Web3um)
+WeChat（微信）: WoKYJ_2001
 
 希望这个描述符合你的需求！如果需要进一步调整或补充，请随时告诉我！ 😊
